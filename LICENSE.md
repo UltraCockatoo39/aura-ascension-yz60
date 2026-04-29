@@ -1,4 +1,4 @@
-
+aura ascension Scripts hidden is the best aura ascension Script, featuring auto-upgrade and auto-heal. Safe and powerful for all your needs.
 
 
 
